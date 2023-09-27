@@ -1,1 +1,1 @@
-# Neil Malpani Purple Belt Games
+# Neil Malpani Games
